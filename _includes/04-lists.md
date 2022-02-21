@@ -1,1 +1,3 @@
-Replace this with a list of your favorite things.
+1. Favourite 1 :+1:
+2. Favourite 2 🏁
+3. Favourite 3 👍 🇮🇳
